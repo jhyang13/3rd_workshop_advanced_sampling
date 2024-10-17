@@ -2,6 +2,8 @@
 
 ![image](https://github.com/user-attachments/assets/92d59589-b19d-4c46-94a9-f8b450047d35)
 
+**Class Link:** https://www.i-comse.org/workshops/
+
 ### Dates: March 20-24, 2023
 
 ### Requirements:
